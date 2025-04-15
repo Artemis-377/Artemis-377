@@ -1,0 +1,14 @@
+- 👋 Hi, I’m @Artemis-377
+- 👀 I’m interested in Python programming, and Ethial hacking
+- 🌱 I’m currently learning Python and Kali Linux
+- 📫 How to reach me ...
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact:
+- I am the color red in a world full of black and white,
+- A blaze of vibrant passion, a beacon burning bright.
+- In a sea of muted tones where shadows softly creep,
+- I stand out like a wildfire, while others fade to sleep.
+- With every heartbeat pounding, I paint the life I seek,
+- A symphony of thunder, a voice that’s strong, not meek.
+- I swirl like painted petals, bold against the grey,
+- A splash of vivid courage that won’t be led astray.
